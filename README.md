@@ -19,3 +19,6 @@ https://twitter.com/hinyari9/status/1777577954358493410
 ## [ASTLIBRA_Revision](https://store.steampowered.com/app/1718570/ASTLIBRA_Revision/) 
 https://twitter.com/_KElZO/status/1745101810233421899
 ![image](https://github.com/user-attachments/assets/5c9b2dd7-7a90-498c-a530-4d6e09a9b80a)
+
+## [Choo Choo Charles](https://store.steampowered.com/app/1766740/ChooChoo_Charles/)
+https://youtu.be/l9y5B0cgUHY?si=9BNUwQQVub72I2na&t=313
